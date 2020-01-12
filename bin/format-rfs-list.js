@@ -3,12 +3,17 @@ const fs = require('fs')
 
 
 const formatted = Object.values(bios).slice(0,300).map(bio => `
-### ${bio.name} - ${bio.office}
+### ${bio.name}
 <img  height="300" src="${bio.image}"></img>
 
+#### ${bio.office}
+
 ${bio.bio.split("\n").join("\n\n")}
+
+[Facebook](${bio.facebook}) - [Twitter](${bio.twitter})
+
+---
 `)
 
-// console.log(formatted.join(''))
 
 fs.writeFileSync("./results/rfs-bios.md", formatted.join(''));
