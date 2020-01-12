@@ -10,7 +10,7 @@ const formatted = Object.values(bios).slice(0,300).map(bio => `
 
 ${bio.bio.split("\n").join("\n\n")}
 
-[Facebook](${bio.facebook}) - [Twitter](${bio.twitter})
+[Facebook](${bio.facebook}) - [Twitter](${bio.twitter}) - [Google](${bio.google})
 
 ---
 `)

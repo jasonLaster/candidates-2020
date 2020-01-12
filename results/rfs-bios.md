@@ -6,7 +6,7 @@
 
 Yterenickia ‘YT’ Bell is a public servant, organizer, and advocate that’s running for Georgia Senate District 41. She is a native Georgian and graduated from Georgia State University with a Bachelor’s degree in Criminal Justice and Political Science and a Masters in Social Work and Public Administration. As a graduate student, YT coupled her academic work with a career at Planned Parenthood Southeast serving as an advocate in the Public Policy Department. YT has worked as a social worker and public policy professional serving vulnerable communities and solving complex problems for almost a decade. YT values equity, people, and efficiency. YT is also a Councilwoman in the City of Clarkston where she works diligently to create an inclusive city.
 
-[Facebook](http://www.facebook.com/YtforSenate) - [Twitter](http://www.twitter.com/YTforSenate)
+[Facebook](http://www.facebook.com/YtforSenate) - [Twitter](http://www.twitter.com/YTforSenate) - [Google](https://www.google.com/search?hl=en&q=Yterenickia%20Bell%20State%20Senate%20District%2041%2C%20Georgia%2C%20GA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -17,7 +17,7 @@ Yterenickia ‘YT’ Bell is a public servant, organizer, and advocate that’s 
 
 Noelia is running for re-election in her hometown school district where her son is now a student. Noelia is only the second Latinx person to serve on the San Mateo-Foster City School District where Latinx students are the majority and make up over 35% of the student body. Her experience as an English Learner and low income student have informed leadership and continue to be a unique perspective rarely represented in elected office in her community. Noelia hopes to continue championing equity, inclusion, and diversity in her school district and community.
 
-[Facebook](http://www.facebook.com/votenoeliacorzo) - [Twitter](http://www.twitter.com/votenoeliacorzo)
+[Facebook](http://www.facebook.com/votenoeliacorzo) - [Twitter](http://www.twitter.com/votenoeliacorzo) - [Google](https://www.google.com/search?hl=en&q=Noelia%20Corzo%20San%20Mateo-Foster%20City%20School%20District%20Board%20Trustee%2C%20CA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -28,7 +28,7 @@ Noelia is running for re-election in her hometown school district where her son 
 
 Rebecca is a veterinarian, public health researcher and a mom of four small children, running for Statehouse in suburban Gwinnett County, Georgia. She is focused on bringing changes to healthcare in Georgia to expand coverage and increase mental health services for at-risk populations. As a mother of a child with a birth defect, she is passionate about improving maternal health and reproductive justice in Georgia.
 
-[Facebook](http://www.facebook.com/rebecca4georgia) - [Twitter](http://www.twitter.com/rebecca4georgia)
+[Facebook](http://www.facebook.com/rebecca4georgia) - [Twitter](http://www.twitter.com/rebecca4georgia) - [Google](https://www.google.com/search?hl=en&q=Rebecca%20Mitchell%20State%20House%20of%20Representatives%2C%20District%20106%2C%20GA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -39,7 +39,7 @@ Rebecca is a veterinarian, public health researcher and a mom of four small chil
 
 Ryan Huffman is a candidate for state representative in Illinois’ 54th district. A former energy policy analyst and White House intern in the Obama administration, he holds a Bachelor’s degree in journalism from Northwestern University and a Master’s degree in public policy from the University of Chicago. In 2018, he ran for Congress in Illinois’ 6th Congressional district, and went on to join the campaign team of his former rival Democrat Sean Casten in his successful bid to flip the district blue. A Palatine resident, Huffman works as a data analyst at a Chicago digital advertising company.
 
-[Facebook](http://www.facebook.com/huffmanforil54) - [Twitter](http://www.twitter.com/huffmanforil54)
+[Facebook](http://www.facebook.com/huffmanforil54) - [Twitter](http://www.twitter.com/huffmanforil54) - [Google](https://www.google.com/search?hl=en&q=Ryan%20Huffman%20State%20Representative%20(House%20District%2054%2C%20Illinois)%2C%20IL&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -52,7 +52,7 @@ Wendy Stolyarov is running for Sparks City Council Ward 1 to fight for housing, 
 
 As an LGBT+ Ward 1 resident and renter, Wendy knows how important housing, security, and dignity are for all of Sparks’s residents. Sparks must prioritize housing, fair wages, equality, and inclusion. On City Council, Wendy will make sure all of Sparks has a voice.
 
-[Facebook](http://www.facebook.com/wendyforsparks) - [Twitter](http://www.twitter.com/wendystolyarov)
+[Facebook](http://www.facebook.com/wendyforsparks) - [Twitter](http://www.twitter.com/wendystolyarov) - [Google](https://www.google.com/search?hl=en&q=Wendy%20Stolyarov%20Sparks%20City%20Council%2C%20Ward%201%2C%20NV&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -65,7 +65,7 @@ Parker grew up in Winston-Salem and moved to Buncombe County in 2007 after gradu
 
 Parker now works at a national utility scale solar energy company in Asheville where he works with local governments across the South in an effort to move our nation away from fossil fuels and toward a 21st century clean energy economy.
 
-[Facebook](http://www.facebook.com/parkersloanforbuncombe) - [Twitter](http://www.twitter.com/thePsloan)
+[Facebook](http://www.facebook.com/parkersloanforbuncombe) - [Twitter](http://www.twitter.com/thePsloan) - [Google](https://www.google.com/search?hl=en&q=Parker%20Sloan%20Buncombe%20County%20Commission%2C%20District%20Three%2C%20NC&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -76,7 +76,7 @@ Parker now works at a national utility scale solar energy company in Asheville w
 
 Zach Stepp is running for the Ohio House to bring results-driven representation for Lorain County to Columbus and break the right-wing Republican supermajority. Zach believes Ohio needs bold new leadership willing to tackle the tough problems that have led to the continued flight of young people from the state, the demonization of public education, and the partisan gerrymandering of our communities. As your Representative, Zach will support strategic investments in our future, end partisan gerrymandering, and strive to bring people together.
 
-[Facebook](http://www.facebook.com/zach) - [Twitter](http://www.twitter.com/ZachSteppOH)
+[Facebook](http://www.facebook.com/zach) - [Twitter](http://www.twitter.com/ZachSteppOH) - [Google](https://www.google.com/search?hl=en&q=Zach%20Stepp%20Ohio%20House%20of%20Representatives%2C%20District%2055%2C%20OH&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -89,7 +89,7 @@ Torrey Harris is a Human Resources Leader within local government and a small bu
 
 He serves on the board of one of the State’s Largest Reproductive Health organizations, an executive member of Shelby County Young Democrats, and a known Youth Mentor in the community. He promises to bring real democratic values: to listen, empower and serve Tennessee.
 
-[Facebook](http://www.facebook.com/torreyharris901) - [Twitter](http://www.twitter.com/No%20Twitter)
+[Facebook](http://www.facebook.com/torreyharris901) - [Twitter](http://www.twitter.com/No%20Twitter) - [Google](https://www.google.com/search?hl=en&q=Torrey%20Harris%20Tennessee%20House%20of%20Representatives%2C%20District%2090%2C%20TN&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -100,7 +100,7 @@ He serves on the board of one of the State’s Largest Reproductive Health organ
 
 Jennifer Love Tang is running for City Council to represent her hometown of Monterey Park. As the daughter of war refugees, Jennifer knew how lucky she was to live in a stable, safe community. At age 21, Jennifer traveled to Cambodia, where she started her career as a teacher. As an educator, Jennifer has helped narrow the achievement gap in her classroom, designed innovative technology for startup companies, engaged student-activists in the political process, advocated for policies on Capitol Hill, and co-founded a progressive grassroots organization. She is running to be the working and middle class champion her city needs.
 
-[Facebook](http://www.facebook.com/jenniferlovetang) - [Twitter]()
+[Facebook](http://www.facebook.com/jenniferlovetang) - [Twitter]() - [Google](https://www.google.com/search?hl=en&q=Jennifer%20Love%20Tang%20Monterey%20Park%20City%20Council%20%2C%20CA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -119,7 +119,7 @@ Lindsey earned Master’s degrees from the University of Kansas in Curriculum an
 
 Lindsey is married with two children who serve as her key motivators to impact change.
 
-[Facebook](http://www.facebook.com/lindsey4kansas) - [Twitter](http://www.twitter.com/lcteach)
+[Facebook](http://www.facebook.com/lindsey4kansas) - [Twitter](http://www.twitter.com/lcteach) - [Google](https://www.google.com/search?hl=en&q=Lindsey%20Constance%20Kansas%20State%20Senate%2C%20District%2010%2C%20KS&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -132,7 +132,7 @@ Joshua Ashton is an 18 year old proud graduate of the Vail Unified School Distri
 
 Joshua has been an advocate for public education since 2014 (when he was only 13), most recently working as the Political Director for March For Our Lives Arizona and a Program Coordinator for the Metropolitan Education Commission.
 
-[Facebook](http://www.facebook.com/joshuatashton) - [Twitter](http://www.twitter.com/ashton4vail)
+[Facebook](http://www.facebook.com/joshuatashton) - [Twitter](http://www.twitter.com/ashton4vail) - [Google](https://www.google.com/search?hl=en&q=Joshua%20Ashton%20Vail%20Unified%20School%20District%20Governing%20Board%2C%20AZ&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -145,7 +145,7 @@ Kristen Powers is a candidate for Alamance County Board of Commissioners in Nort
 
 Kristen Powers lives in Saxapahaw, North Carolina. You can check out her campaign at www.kristenpowers.org
 
-[Facebook](http://www.facebook.com/electkristen) - [Twitter](http://www.twitter.com/electkristen)
+[Facebook](http://www.facebook.com/electkristen) - [Twitter](http://www.twitter.com/electkristen) - [Google](https://www.google.com/search?hl=en&q=Kristen%20Powers%20Alamance%20County%20Board%20of%20Commissioners%2C%20NC&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -158,7 +158,7 @@ Sarah Tyree is an 8 year Army veteran. She continues to fight for her country by
 
 Her unrelenting work with the Utah legislature propelled her forward, returning your home to Arizona, where she is now fighting for change in; ending surprise billing, ensuring veterans have access to community providers, providing access to quality public education and keeping are Arizona children safe.
 
-[Facebook](http://facebook.com/tyree2020) - [Twitter]()
+[Facebook](http://facebook.com/tyree2020) - [Twitter]() - [Google](https://www.google.com/search?hl=en&q=Sarah%20Tyree%20Senate%2C%20District%2022%2C%20Arizona%2C%20AZ&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -173,7 +173,7 @@ Ryan’s professional background includes work in the State Legislature, in Lane
 
 As an LGBT millennial, he is running for Eugene City Council to bring missing perspectives to the table and push for urgent, progressive solutions to the big challenges we face.
 
-[Facebook](http://www.facebook.com/electryanmoore) - [Twitter]()
+[Facebook](http://www.facebook.com/electryanmoore) - [Twitter]() - [Google](https://www.google.com/search?hl=en&q=Ryan%20Moore%20Eugene%20City%20Council%2C%20Ward%208%2C%20OR&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -186,7 +186,7 @@ Hunter is a single foster parent that has fostered 12 youth and adopted two over
 
 Hunter is running to focus on the underserved communities, reform the DFS, address veterans issues on the local level, and tackle the homelessness crisis in Clark County, NV.
 
-[Facebook](http://www.facebook.com/cainforc) - [Twitter](http://www.twitter.com/cainforc)
+[Facebook](http://www.facebook.com/cainforc) - [Twitter](http://www.twitter.com/cainforc) - [Google](https://www.google.com/search?hl=en&q=Hunter%20Cain%20Clark%20County%20Commission%2C%20District%20C%2C%20NV&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -199,7 +199,7 @@ Nida Allam began organizing in 2015 after losing her close friend Yusor to a hat
 
 Nida is running for Durham County Commissioner to fight for what our communities deserve.
 
-[Facebook](http://www.facebook.com/nidaallamnc) - [Twitter](http://www.twitter.com/nidaallam)
+[Facebook](http://www.facebook.com/nidaallamnc) - [Twitter](http://www.twitter.com/nidaallam) - [Google](https://www.google.com/search?hl=en&q=Nida%20Allam%20Durham%20County%20Commissioner%2C%20NC&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -210,7 +210,7 @@ Nida is running for Durham County Commissioner to fight for what our communities
 
 Kristen is running for Asheville City Council because she believes in building a community where everyone has the opportunity to thrive. This includes safe and affordable housing, a transit system that is free and reliable, and growth that is equitable and sustainable. Kristen’s lived-experience gives her the courage to fight for bold solutions. She’s a shift worker, a former architect, and since 2016 she’s been a precinct leader and organizer for the Democratic Party. Kristen believes in the aspirational, progressive values of Asheville, and she’s going to fight to translate those values into policy realities.
 
-[Facebook](http://www.facebook.com/goldsmithforasheville) - [Twitter]()
+[Facebook](http://www.facebook.com/goldsmithforasheville) - [Twitter]() - [Google](https://www.google.com/search?hl=en&q=Kristen%20Goldsmith%20Asheville%20City%20Council%2C%20NC&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -221,7 +221,7 @@ Kristen is running for Asheville City Council because she believes in building a
 
 Javier is running for FL State House in District 105, because it’s time that we had a representative that understands the issues and is willing to fight for their voters. From expanding Medicaid, raising the minimum wage, protecting public education and ensuring we have common sense gun reform, Javier stands with the people of Florida and District 105. I’m 2018, Javier came within 417 votes of flipping 105 and in 2020 we are going to finish what we started.
 
-[Facebook](http://www.facebook.com/javierforflorida) - [Twitter](http://www.twitter.com/javier4florida)
+[Facebook](http://www.facebook.com/javierforflorida) - [Twitter](http://www.twitter.com/javier4florida) - [Google](https://www.google.com/search?hl=en&q=Javier%20Estevez%20Florida%20House%20of%20Representatives%20District%20105%2C%20FL&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -234,7 +234,7 @@ I’m a proud Colorado native who grew up in rural Weld County. I value family, 
 
 I have had a successful career in the healthcare industry while pursuing two college degrees, and have a genuine passion for helping others in my community. I decided to become more active in politics when my father took his own life in 2009. My wife, Jessica, and I celebrated our 13th anniversary this year, and welcomed our son, Liam, into this world in July.
 
-[Facebook](http://www.facebook.com/hollyfor48) - [Twitter](http://www.twitter.com/realhollyherson)
+[Facebook](http://www.facebook.com/hollyfor48) - [Twitter](http://www.twitter.com/realhollyherson) - [Google](https://www.google.com/search?hl=en&q=Holly%20Herson%20Colorado%20House%20District%2048%2C%20CO&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -247,7 +247,7 @@ Born and raised in Flint Michigan, Domonique Clemons understands the challenges 
 
 Domonique holds a Public Policy Degree from Michigan State University, and a master’s degree in Political Management from George Washington University. Domonique has several years of government and advocacy experience, currently serving as Legislative Director to State Representative Alex Garza as well as Founder and Executive Director of the Genesee County Leadership Corps.
 
-[Facebook](http://www.facebook.com/voteclemons) - [Twitter](http://www.twitter.com/voteclemons)
+[Facebook](http://www.facebook.com/voteclemons) - [Twitter](http://www.twitter.com/voteclemons) - [Google](https://www.google.com/search?hl=en&q=Domonique%20Clemons%20Genesee%20County%20Commissioner%2C%20District%204%2C%20Michigan%2C%20MI&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -258,7 +258,7 @@ Domonique holds a Public Policy Degree from Michigan State University, and a mas
 
 Gabby Salinas is a scientist, healthcare advocate, and three-time cancer survivor who’s running for Tennessee House District 97. Gabby immigrated to Tennessee twenty-three years ago to be treated for cancer at St. Jude. It was while going through cancer therapy that she fell in love with science. She earned a BS in Biochemistry from Christian Brothers University and is currently pursuing her PhD in Pharmaceutical Sciences. Gabby is running in 2020 to fight for better healthcare, fair wages, and fully-funded public schools for all Tennesseans. Gabby is on a mission to give back to a community that gave her a chance at life.
 
-[Facebook](http://www.facebook.com/pg) - [Twitter](http://www.twitter.com/gabbysalinas)
+[Facebook](http://www.facebook.com/pg) - [Twitter](http://www.twitter.com/gabbysalinas) - [Google](https://www.google.com/search?hl=en&q=Gabby%20Salinas%20Tennessee%20House%20District%2097%2C%20TN&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -271,7 +271,7 @@ Derrick J. Wilson is a serial entrepreneur and the majority owner of a tax prepa
 
 Derrick’s dedication to family and community caused him to seek ways to be more involved. He joined Gwinnett County’s chapter of NAACP, which led him to become more politically focused. He later joined Gwinnett County Young Democrats and the Gwinnett County Democratic Party. Now, Derrick is fighting for diverse representation, economic development, and more, as a candidate for Gwinnett County Commissioner, District 3.
 
-[Facebook](http://www.facebook.com/wilson4gwinnett) - [Twitter](http://www.twitter.com/wilson4gwinnett)
+[Facebook](http://www.facebook.com/wilson4gwinnett) - [Twitter](http://www.twitter.com/wilson4gwinnett) - [Google](https://www.google.com/search?hl=en&q=Derrick%20J.%20Wilson%20Gwinnett%20County%20District%203%20Commissioner%2C%20GA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -284,7 +284,7 @@ Casey Clowes is a caring and passionate Tempe advocate who has spent her persona
 
 Casey will carry on Tempe’s tradition of excellent public service by working to build sustainable communities, ensuring Tempe is the best place to live for residents of all ages, and giving families resources they need to thrive.
 
-[Facebook](http://www.facebook.com/caseyclowesaz) - [Twitter](http://www.twitter.com/caseyclowesaz)
+[Facebook](http://www.facebook.com/caseyclowesaz) - [Twitter](http://www.twitter.com/caseyclowesaz) - [Google](https://www.google.com/search?hl=en&q=Casey%20Clowes%20Tempe%20City%20Council%2C%20AZ&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -295,7 +295,7 @@ Casey will carry on Tempe’s tradition of excellent public service by working t
 
 Brendan Johnson is a proud Michigander who wants to bring a new generation of values-based leadership to his hometown. Born and raised in the greater Rochester area, his background in national security – he interned as an analyst for Rep. Elissa Slotkin (D-MI) and political officer for the U.S. State Department – make him a uniquely qualified candidate to tackle the most pressing issues in Michigan: clean fresh water, secure infrastructure, and well-supported schools. Brendan has a B.A. in International Relations from Michigan State University and a M.S. in Foreign Service from Georgetown University.
 
-[Facebook](http://www.facebook.com/brendanjohnsonforrep) - [Twitter](http://www.twitter.com/brendantjohnson)
+[Facebook](http://www.facebook.com/brendanjohnsonforrep) - [Twitter](http://www.twitter.com/brendantjohnson) - [Google](https://www.google.com/search?hl=en&q=Brendan%20Johnson%20Michigan%20State%20House%2C%2045th%20District%2C%20MI&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -306,7 +306,7 @@ Brendan Johnson is a proud Michigander who wants to bring a new generation of va
 
 Andrew is serving his first term in the Arkansas House, representing District 35. He is an attorney who works in real estate for Cypress Properties. He grew up in Little Rock and graduated from Duke University and Columbia Law School. In between college and law school, he worked in the AmeriCorps VISTA national service program. Andrew has been involved with several civic and professional organizations, including President of the Board of Directors of Our House, the UA-Pulaski Tech Foundation Board, and Leadership Greater Little Rock. He lives in Little Rock with his wife and three children.
 
-[Facebook](http://www.facebook.com/andrewcollinsAR) - [Twitter](http://www.twitter.com/andrewcollinsAR)
+[Facebook](http://www.facebook.com/andrewcollinsAR) - [Twitter](http://www.twitter.com/andrewcollinsAR) - [Google](https://www.google.com/search?hl=en&q=Andrew%20Collins%20Arkansas%20House%20of%20Representatives%2C%20District%2035%2C%20AR&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -319,7 +319,7 @@ Audrey Spanko is a solution focused candidate running to serve Texas Senate, Dis
 
 She is a strong advocate for public education and healthcare. For over a decade she has worked in healthcare, nonprofit and government settings, and through this work she’s witnessed the impact of ineffective Texas politics. She is running to shift the state’s focus back to the people.
 
-[Facebook](http://www.facebook.com/audreyspankotxsd1) - [Twitter](http://www.twitter.com/audreyspankotx)
+[Facebook](http://www.facebook.com/audreyspankotxsd1) - [Twitter](http://www.twitter.com/audreyspankotx) - [Google](https://www.google.com/search?hl=en&q=Audrey%20Spanko%20Texas%20State%20Senate%2C%20District%201%2C%20TX&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -334,7 +334,7 @@ Cassandra is seeking reelection as State Representative for the Town of Barringt
 
 SUPPORT CASSANDRA HERE!
 
-[Facebook](https://www.facebook.com/CassandraLevesque4NH) - [Twitter](https://twitter.com/Cassandra4NH)
+[Facebook](https://www.facebook.com/CassandraLevesque4NH) - [Twitter](https://twitter.com/Cassandra4NH) - [Google](https://www.google.com/search?hl=en&q=Cassandra%20Levesque%20House%20of%20Representatives%2C%20Strafford%204%2C%20NH&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -349,7 +349,7 @@ Before launching her campaign, she served in Governor Andrew Cuomo’s Counsel�
 
 Her run for office was preceded by a decade of advocacy and service to the people of New York. She interned for the Kings County D.A.’s Office, the U.S. Attorney’s Office for the Southern District of New York, and was a legal fellow for New York State Homes and Community Renewal, working to ensure that families across New York State had access to affordable housing. She served as Assistant General Counsel for Governor Cuomo’s Office of Storm Recovery, working with small businesses and municipalities to rebuild New York after Hurricane Sandy. She was a 2015 New Leaders Council (NLC) fellow, sat on NLC’s Advisory Board, and is a member of The New Agenda’s Young Women Leadership Council. Alessandra attended Pelham public schools and holds degrees from New York University and Fordham Law School. She is also a graduate of the Women’s Campaign School at Yale University.
 
-[Facebook](http://www.facebook.com/Biaggi4NY/) - [Twitter](http://www.twitter.com/Biaggi4NY)
+[Facebook](http://www.facebook.com/Biaggi4NY/) - [Twitter](http://www.twitter.com/Biaggi4NY) - [Google](https://www.google.com/search?hl=en&q=Alessandra%20Biaggi%20New%20York%20State%20Senate%2C%20District%2034%2C%20NY&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -366,7 +366,7 @@ Kari is dedicated to fighting alongside the people of District 50 to support bet
 
 SUPPORT KARI HERE!
 
-[Facebook](http://www.facebook.com/chesneyformo) - [Twitter](http://www.twitter.com/chesneyformo)
+[Facebook](http://www.facebook.com/chesneyformo) - [Twitter](http://www.twitter.com/chesneyformo) - [Google](https://www.google.com/search?hl=en&q=Kari%20Chesney%20State%20House%20of%20Representatives%2C%20District%2050%2C%20MO&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -383,7 +383,7 @@ Alexis is running to continue her work on prosecution alternatives, bond reform,
 
 SUPPORT ALEXIS HERE!
 
-[Facebook](http://www.facebook.com/alexis4da) - [Twitter]()
+[Facebook](http://www.facebook.com/alexis4da) - [Twitter]() - [Google](https://www.google.com/search?hl=en&q=Alexis%20King%20Colorado%20District%20Attorney%2C%201st%20Judicial%20District%2C%20CO&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -400,7 +400,7 @@ A former law clerk to Justice Ruth Bader Ginsburg, Eli is a nationally respected
 
 SUPPORT ELI HERE!
 
-[Facebook](https://www.facebook.com/EliSavit2020/) - [Twitter](https://twitter.com/EliNSavit)
+[Facebook](https://www.facebook.com/EliSavit2020/) - [Twitter](https://twitter.com/EliNSavit) - [Google](https://www.google.com/search?hl=en&q=Eli%20Savit%20Washtenaw%20County%20Prosecuting%20Attorney%2C%20MI&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -417,7 +417,7 @@ In his professional career, Matthew is a business and technology consultant focu
 
 SUPPORT MATTHEW HERE!
 
-[Facebook](https://www.facebook.com/electmatthewpark) - [Twitter](http://twitter.com/themattpark)
+[Facebook](https://www.facebook.com/electmatthewpark) - [Twitter](http://twitter.com/themattpark) - [Google](https://www.google.com/search?hl=en&q=Matthew%20Park%20State%20House%20of%20Representatives%2C%20District%2015%2C%20TN&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -434,7 +434,7 @@ The district Rhodes seeks is among the most competitive in the state and is with
 
 SUPPORT RHODES HERE!
 
-[Facebook](https://www.facebook.com/rhodesbaileysc) - [Twitter](https://twitter.com/rhodesbailey)
+[Facebook](https://www.facebook.com/rhodesbaileysc) - [Twitter](https://twitter.com/rhodesbailey) - [Google](https://www.google.com/search?hl=en&q=Rhodes%20Bailey%20South%20Carolina%20House%20of%20Representatives%2C%20District%2075%2C%20SC&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -453,7 +453,7 @@ Kim is a graduate of Furman University, Candler School of Theology at Emory Univ
 
 SUPPORT KIM HERE!
 
-[Facebook](http://www.facebook.com/kimjacksonforgeorgia) - [Twitter](http://www.twitter.com/kimforgeorgia)
+[Facebook](http://www.facebook.com/kimjacksonforgeorgia) - [Twitter](http://www.twitter.com/kimforgeorgia) - [Google](https://www.google.com/search?hl=en&q=Kimberly%20Jackson%20Georgia%20State%20Senate%2C%20District%2041%2C%20GA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -470,7 +470,7 @@ Audrey is currently focused on protecting Georgia’s voters through her work wi
 
 SUPPORT AUDREY HERE!
 
-[Facebook](https://www.facebook.com/votemaloof) - [Twitter](https://twitter.com/votemaloof)
+[Facebook](https://www.facebook.com/votemaloof) - [Twitter](https://twitter.com/votemaloof) - [Google](https://www.google.com/search?hl=en&q=Audrey%20Maloof%20State%20House%20of%20Representatives%2C%20District%2083%2C%20GA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -489,7 +489,7 @@ Currently, he works with the Giffords Law Center to Prevent Gun Violence and on 
 
 SUPPORT MARVIN HERE!
 
-[Facebook](http://www.facebook.com/marvinlimforga) - [Twitter](http://www.twitter.com/marvinlimforga)
+[Facebook](http://www.facebook.com/marvinlimforga) - [Twitter](http://www.twitter.com/marvinlimforga) - [Google](https://www.google.com/search?hl=en&q=Marvin%20Lim%20Georgia%20House%20of%20Representatives%2C%20District%2099%2C%20GA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -506,7 +506,7 @@ Joe’s urgency to address the systemic issues that have plagued Baltimore for d
 
 SUPPORT JOE HERE!
 
-[Facebook](http://www.facebook.com/electjoekane) - [Twitter](http://www.twitter.com/jkane146)
+[Facebook](http://www.facebook.com/electjoekane) - [Twitter](http://www.twitter.com/jkane146) - [Google](https://www.google.com/search?hl=en&q=Joseph%20Kane%20Baltimore%20City%20Council%2C%20District%2014%2C%20MD&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -521,7 +521,7 @@ Hadiya Afzal is a college student who grew up and ran for office in her home dis
 
 SUPPORT HADIYA HERE!
 
-[Facebook](http://www.facebook.com/hadiyafordupage) - [Twitter](http://www.twitter.com/hadiya_afzal)
+[Facebook](http://www.facebook.com/hadiyafordupage) - [Twitter](http://www.twitter.com/hadiya_afzal) - [Google](https://www.google.com/search?hl=en&q=Hadiya%20Afzal%20DuPage%20County%20Board%2C%20District%204%2C%20IL&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -536,7 +536,7 @@ José started his career on the Texas/Mexico border as an assistant public defen
 
 SUPPORT JOSE HERE!
 
-[Facebook](http://www.facebook.com/joseforda) - [Twitter](http://www.twitter.com/josepgarza)
+[Facebook](http://www.facebook.com/joseforda) - [Twitter](http://www.twitter.com/josepgarza) - [Google](https://www.google.com/search?hl=en&q=Jose%20Garza%20Travis%20County%20District%20Attorney%2C%20TX&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -551,7 +551,7 @@ Andrea is running for the Department of Education Board to support and bolster p
 
 SUPPORT ANDREA HERE!
 
-[Facebook](https://www.facebook.com/voteduhon/) - [Twitter](http://www.twitter.com/andrealsduhon)
+[Facebook](https://www.facebook.com/voteduhon/) - [Twitter](http://www.twitter.com/andrealsduhon) - [Google](https://www.google.com/search?hl=en&q=Andrea%20Duhon%20Harris%20County%20Department%20of%20Education%20Board%20of%20Trustees%20At-Large%20Position%205%2C%20TX&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -564,7 +564,7 @@ Akilah Bacy is running for state representative of Texas House District 138. Aki
 
 SUPPORT AKILAH HERE!
 
-[Facebook](http://www.facebook.com/akilahbacy) - [Twitter](http://www.twitter.com/akilahbacy)
+[Facebook](http://www.facebook.com/akilahbacy) - [Twitter](http://www.twitter.com/akilahbacy) - [Google](https://www.google.com/search?hl=en&q=Akilah%20Bacy%20State%20House%20of%20Representatives%2C%20District%20138%2C%20TX&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -579,7 +579,7 @@ Daniel Epstein is an award winning attorney who represented clients in complex p
 
 SUPPORT DANIEL HERE!
 
-[Facebook](http://www.facebook.com/epsteinforsupremecourt) - [Twitter](http://www.twitter.com/epsteind)
+[Facebook](http://www.facebook.com/epsteinforsupremecourt) - [Twitter](http://www.twitter.com/epsteind) - [Google](https://www.google.com/search?hl=en&q=Daniel%20Epstein%20Illinois%20Supreme%20Court%2C%20IL&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -594,7 +594,7 @@ Jessica Tiedt previously ran for Williamson County Clerk in 2018 and garnered 93
 
 SUPPORT JESSICA HERE!
 
-[Facebook](http://www.facebook.com/jessica4tx) - [Twitter](http://www.twitter.com/jessica4tx)
+[Facebook](http://www.facebook.com/jessica4tx) - [Twitter](http://www.twitter.com/jessica4tx) - [Google](https://www.google.com/search?hl=en&q=Jessica%20Tiedt%20State%20House%20of%20Representatives%2C%20District%2020%2C%20TX&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -615,7 +615,7 @@ Senator Rausch’s election in 2018 flipped a formerly solid Republican district
 
 SUPPORT BECCA HERE!
 
-[Facebook](http://facebook.com/voteBeccaRausch) - [Twitter](http://twitter.com/voteBeccaRausch)
+[Facebook](http://facebook.com/voteBeccaRausch) - [Twitter](http://twitter.com/voteBeccaRausch) - [Google](https://www.google.com/search?hl=en&q=Becca%20Rausch%20Massachusetts%20State%20Senator%2C%20Norfolk%2C%20Bristol%20and%20Middlesex%20District%2C%20Needham%2C%20MA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -630,7 +630,7 @@ As a member of the Joint Committee on Children, Families, and Persons with Disab
 
 SUPPORT DAVID HERE!
 
-[Facebook](http://www.facebook.com/VoteDavidLeBoeuf/) - [Twitter](http://www.twitter.com/DavidLeBoeuf)
+[Facebook](http://www.facebook.com/VoteDavidLeBoeuf/) - [Twitter](http://www.twitter.com/DavidLeBoeuf) - [Google](https://www.google.com/search?hl=en&q=David%20LeBoeuf%20Massachusetts%20State%20Representative%2C%2017th%20Worcester%20District%2C%20Worcester%2C%20MA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -647,7 +647,7 @@ Pierce founded Blackspace, a digital maker space for Durham youth. He has taught
 
 SUPPORT PIERCE HERE!
 
-[Facebook](http://www.facebook.com/piercefreelon) - [Twitter](http://www.twitter.com/piercefreelon)
+[Facebook](http://www.facebook.com/piercefreelon) - [Twitter](http://www.twitter.com/piercefreelon) - [Google](https://www.google.com/search?hl=en&q=Pierce%20Freelon%20State%20Senate%2C%20District%2020%2C%20NC&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -672,7 +672,7 @@ Representative Joseph has received a “Woman on the Rise ” award from the Dad
 
 SUPPORT DOTIE HERE!
 
-[Facebook](https://www.facebook.com/DotieJoseph) - [Twitter](http://www.twitter.com/DotieForFlorida)
+[Facebook](https://www.facebook.com/DotieJoseph) - [Twitter](http://www.twitter.com/DotieForFlorida) - [Google](https://www.google.com/search?hl=en&q=Dotie%20Joseph%20Florida%20House%2C%20District%20108%2C%20Miami%2C%20FL&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -687,7 +687,7 @@ He currently sits on the Financial Institutions & Pensions, Education, and Agric
 
 SUPPORT RUI HERE!
 
-[Facebook](http://www.facebook.com/RuiXuKS) - [Twitter](http://www.twitter.com/RuiXuKS)
+[Facebook](http://www.facebook.com/RuiXuKS) - [Twitter](http://www.twitter.com/RuiXuKS) - [Google](https://www.google.com/search?hl=en&q=Rui%20Xu%20Kansas%20House%2C%20District%2025%2C%20Westwood%2C%20KS&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -702,7 +702,7 @@ In September 2017, she was appointed to the Weare Town Cable Committee, where sh
 
 SUPPORT RACHEL HERE!
 
-[Facebook](http://www.facebook.com/cistofornh) - [Twitter](http://www.twitter.com/rachelcisto)
+[Facebook](http://www.facebook.com/cistofornh) - [Twitter](http://www.twitter.com/rachelcisto) - [Google](https://www.google.com/search?hl=en&q=Rachel%20Cisto%20New%20Hampshire%20State%20Representative%2C%20Hillsborough%20County%20District%202%2C%20Weare%2C%20NH&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -719,7 +719,7 @@ She and her husband are the proud parents of two precious girls.
 
 SUPPORT AURORA HERE!
 
-[Facebook](http://www.facebook.com/auroraforjudge) - [Twitter](http://www.twitter.com/judgeaurora)
+[Facebook](http://www.facebook.com/auroraforjudge) - [Twitter](http://www.twitter.com/judgeaurora) - [Google](https://www.google.com/search?hl=en&q=Aurora%20Martinez%20Jones%20126th%20District%20Court%2C%20Austin%2C%20TX&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -734,7 +734,7 @@ Eliz currently works at The Princeton as a teacher, corporate trainer, content d
 
 SUPPORT ELIZ HERE!
 
-[Facebook](http://www.facebook.com/eliz4tx) - [Twitter](http://www.twitter.com/ElizMarkowitz)
+[Facebook](http://www.facebook.com/eliz4tx) - [Twitter](http://www.twitter.com/ElizMarkowitz) - [Google](https://www.google.com/search?hl=en&q=Eliz%20Markowitz%20House%20District%2028%2C%20Katy%2C%20TX&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -749,7 +749,7 @@ Before she was elected to the Michigan House, Kyra was a civil litigation attorn
 
 SUPPORT KYRA HERE!
 
-[Facebook](http://www.facebook.com/KyraHBolden) - [Twitter](http://www.twitter.com/kyrahbolden)
+[Facebook](http://www.facebook.com/KyraHBolden) - [Twitter](http://www.twitter.com/kyrahbolden) - [Google](https://www.google.com/search?hl=en&q=Kyra%20Bolden%20Michigan%20House%2C%20District%2035%2C%20Southfield%2C%20MI&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -764,7 +764,7 @@ Sydney decided to run because she wants to make a difference for those people wh
 
 SUPPORT SYDNEY HERE!
 
-[Facebook](https://www.facebook.com/friendsforbatch/) - [Twitter](https://twitter.com/friendsforbatch)
+[Facebook](https://www.facebook.com/friendsforbatch/) - [Twitter](https://twitter.com/friendsforbatch) - [Google](https://www.google.com/search?hl=en&q=Sydney%20Batch%20House%20of%20Representatives%2C%20District%2037%2C%20Raleigh%2C%20NC&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -779,7 +779,7 @@ He has also served as District Director for the local Congressman and as Politic
 
 SUPPORT ALEX HERE!
 
-[Facebook](http://www.facebook.com/yourbarrio) - [Twitter](http://www.twitter.com/YourBarrioFL)
+[Facebook](http://www.facebook.com/yourbarrio) - [Twitter](http://www.twitter.com/YourBarrioFL) - [Google](https://www.google.com/search?hl=en&q=Alex%20Barrio%20Florida%20House%20of%20Representatives%2C%20District%2043%2C%20Kissimmee%2C%20FL&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -794,7 +794,7 @@ She is running for state representative to fight for public education and advoca
 
 SUPPORT MAGGIE HERE!
 
-[Facebook](http://www.facebook.com/maggieformo) - [Twitter](http://www.twitter.com/maggieformo)
+[Facebook](http://www.facebook.com/maggieformo) - [Twitter](http://www.twitter.com/maggieformo) - [Google](https://www.google.com/search?hl=en&q=Maggie%20Nurrenbern%20Missouri%20House%2C%20District%2015%2C%20Kansas%20City%2C%20MO&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -809,7 +809,7 @@ He is bringing a message of union built, middle-income housing for union members
 
 SUPPORT BRANDON HERE!
 
-[Facebook](https://www.facebook.com/PattersonForAssembly) - [Twitter](http://www.twitter.com/patterson_b)
+[Facebook](https://www.facebook.com/PattersonForAssembly) - [Twitter](http://www.twitter.com/patterson_b) - [Google](https://www.google.com/search?hl=en&q=Brandon%20Patterson%20New%20York%20State%20Assembly%2C%2064th%20District%2C%20Staten%20Island%2C%20NY&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -824,7 +824,7 @@ As an IT Audit professional, Eric is very concerned about issues related to data
 
 SUPPORT ERIC HERE!
 
-[Facebook](http://www.facebook.com/ericwoodsmo) - [Twitter](http://www.twitter.com/ericwoods)
+[Facebook](http://www.facebook.com/ericwoodsmo) - [Twitter](http://www.twitter.com/ericwoods) - [Google](https://www.google.com/search?hl=en&q=Eric%20Woods%20Missouri%20House%2C%20District%2015%2C%20Gladstone%2C%20MO&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -839,7 +839,7 @@ Jen is excited about the opportunity to represent real middle-class Nebraskans i
 
 SUPPORT JEN HERE!
 
-[Facebook](http://www.facebook.com/jendayfornebraska) - [Twitter](http://www.twitter.com/jenday4ne)
+[Facebook](http://www.facebook.com/jendayfornebraska) - [Twitter](http://www.twitter.com/jenday4ne) - [Google](https://www.google.com/search?hl=en&q=Jen%20Day%20Nebraska%20Legislature%2C%20District%2049%2C%20Omaha%2C%20NE&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -854,7 +854,7 @@ In 2018, Paris was elected to the Democratic State Central Committee and was the
 
 SUPPORT PARIS HERE!
 
-[Facebook](http://www.facebook.com/parisforbaltimore) - [Twitter](http://www.twitter.com/parisbienert)
+[Facebook](http://www.facebook.com/parisforbaltimore) - [Twitter](http://www.twitter.com/parisbienert) - [Google](https://www.google.com/search?hl=en&q=Paris%20Bienert%20Baltimore%20City%20Council%2C%20District%201%2C%20MD&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -869,7 +869,7 @@ Kacie is finishing a degree in Political Science with a certificate in Labor Stu
 
 SUPPORT KACIE HERE!
 
-[Facebook](http://www.facebook.com/votekacie) - [Twitter](http://www.twitter.com/votekacie)
+[Facebook](http://www.facebook.com/votekacie) - [Twitter](http://www.twitter.com/votekacie) - [Google](https://www.google.com/search?hl=en&q=Kacie%20Weicherding%20State%20House%2C%20District%20108%2C%20Hoyleton%2C%20IL&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -886,7 +886,7 @@ Elizabeth wants to work to ensure that all Texans, no matter their circumstances
 
 SUPPORT ELIZABETH HERE!
 
-[Facebook](https://www.facebook.com/ElizabethforTexas/) - [Twitter](http://www.twitter.com/elizabethfortx)
+[Facebook](https://www.facebook.com/ElizabethforTexas/) - [Twitter](http://www.twitter.com/elizabethfortx) - [Google](https://www.google.com/search?hl=en&q=Elizabeth%20Beck%20House%2C%20District%2097%2C%20Fort%20Worth%2C%20TX&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -901,7 +901,7 @@ A former public school teacher and an organizer against the school to prison pip
 
 SUPPORT GODFREY HERE!
 
-[Facebook](http://www.facebook.com/godfreyforassembly) - [Twitter](http://www.twitter.com/godfreyplata)
+[Facebook](http://www.facebook.com/godfreyforassembly) - [Twitter](http://www.twitter.com/godfreyplata) - [Google](https://www.google.com/search?hl=en&q=Godfrey%20Plata%20State%20Assembly%2C%20District%2053%2C%20Los%20Angeles%2C%20CA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -916,7 +916,7 @@ lthough gerrymandering affected his chances at being successful, Eric continued 
 
 SUPPORT ERIC HERE!
 
-[Facebook](http://www.facebook.com/ericholguintx) - [Twitter](http://www.twitter.com/ericholguintx)
+[Facebook](http://www.facebook.com/ericholguintx) - [Twitter](http://www.twitter.com/ericholguintx) - [Google](https://www.google.com/search?hl=en&q=Eric%20Holguin%20House%20District%2032%2C%20Corpus%20Christi%2C%20TX&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -927,7 +927,7 @@ SUPPORT ERIC HERE!
 
 Kipp is running to lift working and middle class families. A graduate of UC Berkeley and Columbia Law School, Kipp is a workers’ rights and pro bono asylum attorney. Growing up, his father was a house painter and his mother was a community college counselor for disabled students. At the time, life in the working class was comfortable. Today, working families fear the first of the month. Kipp will work hard to strengthen and build the 21st century working class, and ensure that the needs of working and middle class families are prioritized in Sacramento.
 
-[Facebook](http://www.facebook.com/kippforsenate) - [Twitter](http://www.twitter.com/kippmueller)
+[Facebook](http://www.facebook.com/kippforsenate) - [Twitter](http://www.twitter.com/kippmueller) - [Google](https://www.google.com/search?hl=en&q=Kipp%20Mueller%20Senate%20District%2021%2C%20California%2C%20CA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -944,7 +944,7 @@ Rish is prepared to use his experience in government in politics to be a voice f
 
 SUPPORT RISH HERE!
 
-[Facebook](http://www.facebook.com/rishoberoitx) - [Twitter](http://www.twitter.com/rishoberoitx)
+[Facebook](http://www.facebook.com/rishoberoitx) - [Twitter](http://www.twitter.com/rishoberoitx) - [Google](https://www.google.com/search?hl=en&q=Rish%20Oberoi%20House%20of%20Representatives%2C%20District%2026%2C%20Sugar%20Land%2C%20TX&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -955,7 +955,7 @@ SUPPORT RISH HERE!
 
 Wesley is running for NC House of Representatives in District 105. He is a North Carolina native, PhD Economist, small business owner, and adjunct professor at UNC-Charlotte.  Wesley believes that in order to have an economy that works for everyone we have to invest in quality public education, smart infrastructure, and economic mobility.  Wesley will go to the NC General Assembly so that all North Carolinians have the opportunity to succeed and to ensure that our economy not only continues to grow, but that growth reaches all levels of our society.
 
-[Facebook](http://www.facebook.com/wesleyharrisnc) - [Twitter](http://www.twitter.com/wesleyharrisnc)
+[Facebook](http://www.facebook.com/wesleyharrisnc) - [Twitter](http://www.twitter.com/wesleyharrisnc) - [Google](https://www.google.com/search?hl=en&q=Wesley%20Harris%20State%20House%20District%20105%2C%20North%20Carolina%2C%20NC&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -966,7 +966,7 @@ Wesley is running for NC House of Representatives in District 105. He is a North
 
 Dylan is a native of Routt County and is now a prosecutor in Eagle County. He got his start in politics organizing for President Obama in Western Colorado in 2008 and 2012. He's running because he believes our state's challenges could use more people like him who represent the next generation of Coloradans making decisions about our state's future.
 
-[Facebook](http://www.facebook.com/DylanForColorado) - [Twitter](http://www.twitter.com/DRobCO)
+[Facebook](http://www.facebook.com/DylanForColorado) - [Twitter](http://www.twitter.com/DRobCO) - [Google](https://www.google.com/search?hl=en&q=Dylan%20Roberts%20Colorado%20State%20House%2C%20District%2026%2C%20CO&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -977,7 +977,7 @@ Dylan is a native of Routt County and is now a prosecutor in Eagle County. He go
 
 Brandon is a lifelong Kansan and career fundraising professional working to make college affordable for Kansans. As state representative, Brandon will work to build consensus and bring common-sense solutions to the issues facing Kansas. After the implementation of the failed Brownback Tax Experiment, Brandon chose to remain in Kansas after college and move to Lenexa to dedicate his time to making a difference and fighting the radically conservative ideas coming from Topeka. He has spent the past three years mobilizing, training, and organizing young people to turn their energy into meaningful action on the local, state, and federal levels.
 
-[Facebook](http://facebook.com/Woodard4Kansas) - [Twitter](http://twitter.com/Woodard4Kansas)
+[Facebook](http://facebook.com/Woodard4Kansas) - [Twitter](http://twitter.com/Woodard4Kansas) - [Google](https://www.google.com/search?hl=en&q=Brandon%20Woodard%20House%20District%2030%2C%20Kansas%2C%20KS&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -988,7 +988,7 @@ Brandon is a lifelong Kansan and career fundraising professional working to make
 
 Karen Alzate is running for Statehouse district 60 in Rhode Island. Karen was born and raised in RI and loves her community. Karen is running because the country is at a turning point where we are seeing that women rights, immigrant rights and people of color are under attack and our current administration isn't not reflective of the issues at hand.
 
-[Facebook](https://www.facebook.com/KarenDistrict60/) - [Twitter]()
+[Facebook](https://www.facebook.com/KarenDistrict60/) - [Twitter]() - [Google](https://www.google.com/search?hl=en&q=Karen%20Alzate%20house%20district%2060%2C%20RI&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -999,7 +999,7 @@ Karen Alzate is running for Statehouse district 60 in Rhode Island. Karen was bo
 
 Jon Morgan was raised in New Hampshire and is a cybersecurity professional with a background in international business development.  He currently serves as a member of the Planning Board in Brentwood, where he lives with his wife of eight years, Katie, and their three young sons.
 
-[Facebook](http://www.facebook.com/jonmorganfornh) - [Twitter](http://www.twitter.com/jonmorgannh)
+[Facebook](http://www.facebook.com/jonmorganfornh) - [Twitter](http://www.twitter.com/jonmorgannh) - [Google](https://www.google.com/search?hl=en&q=Jon%20Morgan%20NH%20State%20Senate%20-%20District%2023%2C%20NH&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1010,7 +1010,7 @@ Jon Morgan was raised in New Hampshire and is a cybersecurity professional with 
 
 Mother of three young children, Ashton Clemmons has always had a passion for serving the people of North Carolina. After graduating from UNC-Chapel Hill as a NC Teaching Fellow, she taught in Durham and Guilford counties, and went on to earn Master’s in School Leadership from Harvard University. As principal, she led the turn-around of one of the state’s lowest performing schools. Most recently serving as assistant superintendent of the Thomasville City Schools, Ashton was selected one of the Triad Business Journal’s “40 Leaders under 40” and has also been honored by the United Way with its Human Rights Advocate award.
 
-[Facebook](http://www.facebook.com/pages) - [Twitter](http://www.twitter.com/clemmons4nc)
+[Facebook](http://www.facebook.com/pages) - [Twitter](http://www.twitter.com/clemmons4nc) - [Google](https://www.google.com/search?hl=en&q=Ashton%20Clemmons%20NC%20House%20District%2057%2C%20NC&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1021,7 +1021,7 @@ Mother of three young children, Ashton Clemmons has always had a passion for ser
 
 Yadira Caraveo, your 2018 candidate for House District 31, is the daughter of immigrant parents who moved to Denver from a small town in Mexico in the 1970s. The oldest of four children, Yadira and her siblings grew up in Adams County. After graduating from Northglenn High School, Yadira went on to earn a Bachelor of Science degree in Biology from Regis University and a degree as Doctor of Medicine from the University of Colorado. After spending three years of pediatric residency, she returned home to her beloved Adams County, settling down in the city of Thornton where she currently resides and practices as a pediatrician. As a Latina woman, a pediatrician, a labor advocate, and an environmental activist, she has never backed down from tackling the issues that Coloradans face. While she has received accolades for her work, like the “Champion of Change” honor from the Obama administration in 2013, she fights for her neighbors because she wants to help improve our lives and move Colorado forward.
 
-[Facebook](https://www.facebook.com/caraveoforcolorado/) - [Twitter](https://twitter.com/yadiracaraveo?lang=en)
+[Facebook](https://www.facebook.com/caraveoforcolorado/) - [Twitter](https://twitter.com/yadiracaraveo?lang=en) - [Google](https://www.google.com/search?hl=en&q=Yadira%20Caraveo%20House%20District%2031%2C%20Colorado%2C%20CO&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1032,7 +1032,7 @@ Yadira Caraveo, your 2018 candidate for House District 31, is the daughter of im
 
 Heather is a mom, a mental health therapist, and an avid community leader. She loves Edina and is deeply invested in seeing the city thrive. She is about putting people first. Politics should always have people front and center. Heather will put her community first and be the strong voice Edina needs at the Capitol.
 
-[Facebook](http://www.facebook.com/heathermedelson) - [Twitter](http://www.twitter.com/)
+[Facebook](http://www.facebook.com/heathermedelson) - [Twitter](http://www.twitter.com/) - [Google](https://www.google.com/search?hl=en&q=Heather%20Edelson%20Minnesota%20State%20Legislature%2C%20Representative%20for%2049A%2C%20MN&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1043,7 +1043,7 @@ Heather is a mom, a mental health therapist, and an avid community leader. She l
 
 Maria Robinson is running for State Representative in the 6th Middlesex District of Massachusetts. A former Town Meeting member, Maria is a clean energy policy expert and advocate, who has spent the last decade helping state policymakers and public officials throughout the country to address climate change through renewable energy and energy efficiency policies. Maria is an MIT graduate and the child of public servants and union members, who taught her the value of hard work and giving back to her community. Maria serves on the board of the Framingham Public Library Foundation, the Friends of the Framingham Library, and is a member of the Framingham Democratic Committee. Maria lives in Framingham with her husband, their two foster (soon-to-be-adopted!) children ages 10 and 12, her parents, and their lively dog Guinness.
 
-[Facebook](http://www.facebook.com/maria4staterep) - [Twitter](http://www.twitter.com/maria4staterep)
+[Facebook](http://www.facebook.com/maria4staterep) - [Twitter](http://www.twitter.com/maria4staterep) - [Google](https://www.google.com/search?hl=en&q=Maria%20Robinson%20State%20Representative%2C%206th%20Middlesex%2C%20Massachusetts%2C%20MA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1054,7 +1054,7 @@ Maria Robinson is running for State Representative in the 6th Middlesex District
 
 Matt is a husband, a father, and a 2018 graduate from University of Missouri-Kansas City School of Law with a goal of doing pro-bono work for individuals who are barred from the court system. As a son of two pastors, Matt has been active in the church since he was a child and has always held a community service attitude. He plans on taking this community first mindset to Jefferson City by ensuring that public education is fully funded, making sure there is access to affordable healthcare and will fight to protect unions.
 
-[Facebook](http://www.facebook.com/sainformissouri) - [Twitter](http://www.twitter.com/mattdsain)
+[Facebook](http://www.facebook.com/sainformissouri) - [Twitter](http://www.twitter.com/mattdsain) - [Google](https://www.google.com/search?hl=en&q=Matt%20Sain%20Missouri%20State%20Representative%2C%2014th%20District%2C%20MO&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1065,7 +1065,7 @@ Matt is a husband, a father, and a 2018 graduate from University of Missouri-Kan
 
 John Bucy is a small business owner whose organizational skills and leadership as past Chair of the Williamson County Democratic Party led an impressive string of Democratic victories – from city councils, to County Commissioner. He is running to lower our local property taxes by improving public education funding, expand Medicaid and access to affordable healthcare, and protect local control. John believes we must seek innovative solutions to our regional problems, especially issues such as traffic. An avid fan of parks and sports, he lives in Northwest Austin with his wife, Molly, a public school teacher and small business owner.
 
-[Facebook](http://www.facebook.com/BucyForTexas) - [Twitter](http://www.twitter.com/BucyForTexas)
+[Facebook](http://www.facebook.com/BucyForTexas) - [Twitter](http://www.twitter.com/BucyForTexas) - [Google](https://www.google.com/search?hl=en&q=John%20Bucy%20Texas%20House%20District%20136%2C%20TX&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1076,7 +1076,7 @@ John Bucy is a small business owner whose organizational skills and leadership a
 
 Laurie is a millennial microbiologist running a grassroots campaign on a progressive agenda. Her commitment to community service and activism began at Michigan State University, where she was a member of the campus LGBTQ-straight alliance and volunteered at the local crisis center. She has spent her career in laboratories doing everything from food safety to toxicology testing. As a scientist, she has a fierce commitment to protecting the environment. Laurie is also a strong supporter of a single-payer healthcare system that will also prioritize mental health services.
 
-[Facebook](http://www.facebook.com/lauriepohutskyhd19/) - [Twitter](http://www.twitter.com/lpohutsky19)
+[Facebook](http://www.facebook.com/lauriepohutskyhd19/) - [Twitter](http://www.twitter.com/lpohutsky19) - [Google](https://www.google.com/search?hl=en&q=Laurie%20Pohutsky%20Michigan%20House%20of%20Representatives%20District%2019%2C%20MI&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1087,7 +1087,7 @@ Laurie is a millennial microbiologist running a grassroots campaign on a progres
 
 Matthew knows the impact of Georgia investing in its most important resource: its people. He grew up in a family of public servants in Griffin, learning the value of hard work and commitment to community. Matthew attended the University of Georgia on a HOPE Scholarship, worked as a sixth-grade STEM teacher, and returned to UGA for his law degree. He now runs a law firm in Brookhaven and volunteers as a consumer rights advocate.
 
-[Facebook](https://www.facebook.com/matthewforGA) - [Twitter](https://twitter.com/mwilsonga)
+[Facebook](https://www.facebook.com/matthewforGA) - [Twitter](https://twitter.com/mwilsonga) - [Google](https://www.google.com/search?hl=en&q=Matthew%20Wilson%20Georgia%20House%20of%20Representatives%2C%20District%2080%2C%20GA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1098,7 +1098,7 @@ Matthew knows the impact of Georgia investing in its most important resource: it
 
 Tram Nguyen is running for Massachusetts State Representative for the 18th Essex District.  When she was five years old, Tram and her family fled the hostile communist regime of Vietnam as political refugees and immigrated to the United States, where they settled in the Merrimack Valley. Tram is a proud graduate of Massachusetts’s public schools. Tram has dedicated her career to public service and has been a champion for people who needed one. She has consistently been on the front lines helping victims of domestic abuse, exploited workers, and vulnerable people navigate the legal system as a Staff Attorney at Greater Boston Legal Services. Tram is committed to taking her expertise navigating the laws and legal system to the Massachusetts State House where she can continue to be a strong advocate on behalf of the Commonwealth and 18th Essex District.  She is a graduate of Tufts University and received her J.D. from Northeastern Law School. Tram is the first Vietnamese American woman to run for public office in the history of the Commonwealth.
 
-[Facebook](https://www.facebook.com/TeamTram.MA/) - [Twitter](https://twitter.com/TeamTram)
+[Facebook](https://www.facebook.com/TeamTram.MA/) - [Twitter](https://twitter.com/TeamTram) - [Google](https://www.google.com/search?hl=en&q=Tram%20Nguyen%20MA%20State%20Representative%2018th%20Essex%2C%20MA&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1109,7 +1109,7 @@ Tram Nguyen is running for Massachusetts State Representative for the 18th Essex
 
 Keri is a wife, mother of two, former military brat, and Licensed Master Social Worker who has served her community working in child welfare, community mental health centers, schools, and hospitals. These experiences left an indelible mark on her- and lead to her wanting to advocate for the most vulnerable communities at the legislative level. Keri will fight for fairness, justice, and to amplify the voices of those struggling beneath the weight of bureaucracy.
 
-[Facebook](http://www.facebook.com/keriformissouri) - [Twitter](http://www.twitter.com/keriformissouri)
+[Facebook](http://www.facebook.com/keriformissouri) - [Twitter](http://www.twitter.com/keriformissouri) - [Google](https://www.google.com/search?hl=en&q=Keri%20Ingle%20House%20District%2035%2C%20Missouri%20%2C%20MO&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1120,7 +1120,7 @@ Keri is a wife, mother of two, former military brat, and Licensed Master Social 
 
 Matt Wilhelm first moved to Manchester thirteen years ago to serve two terms as an AmeriCorps member with City Year, leading a diverse team of young adults in high-need public schools. He and his wife, Jody, fell in love with Manchester, put down roots, started a family, and built a career in the nonprofit sector. Matt earned his master's in public administration at UNH's Carsey School for Public Policy and hopes to continue his career in public service as a member of New Hampshire’s citizen legislature, bringing fresh perspective, new ideas, and bold leadership to the State House.
 
-[Facebook](http://www.facebook.com/WilhelmForNH) - [Twitter](http://www.twitter.com/WilhelmForNH)
+[Facebook](http://www.facebook.com/WilhelmForNH) - [Twitter](http://www.twitter.com/WilhelmForNH) - [Google](https://www.google.com/search?hl=en&q=Matt%20Wilhelm%20NH%20State%20Rep%2C%20Manchester%20Wards%201-3%20(Hillsborough%2042)%2C%20NH&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1131,7 +1131,7 @@ Matt Wilhelm first moved to Manchester thirteen years ago to serve two terms as 
 
 Erin Zwiener is an author, educator, and conservationist from Driftwood, Texas. After organizing an Indivisible Town Hall for her congressman, she became determined to give Texans more democratic and progressive representation. A fifth generation Texan, she is running to fight for her Texas values: healthy communities, inclusivity, and common sense government. Let’s put the all back in y’all!
 
-[Facebook](http://www.facebook.com/erinforyall) - [Twitter](http://www.twitter.com/erinforyall)
+[Facebook](http://www.facebook.com/erinforyall) - [Twitter](http://www.twitter.com/erinforyall) - [Google](https://www.google.com/search?hl=en&q=Erin%20Zwiener%20Texas%20State%20House%20District%2045%2C%20TX&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1142,7 +1142,7 @@ Erin Zwiener is an author, educator, and conservationist from Driftwood, Texas. 
 
 Brianna, a geologist and Information Technology professional by trade, has lived in Jefferson County for over ten years. She has served her communities her entire life, first as a volunteer firefighter, HOA President, and more recently in Democrat Party leadership positions. Brianna hopes to continue this service as the State’s first openly trans statewide representative and fight for all Coloradans to live healthy, productive, and meaningful lives.
 
-[Facebook](http://www.facebook.com/BriannaForColorado) - [Twitter](http://www.twitter.com/BriannaForHD27)
+[Facebook](http://www.facebook.com/BriannaForColorado) - [Twitter](http://www.twitter.com/BriannaForHD27) - [Google](https://www.google.com/search?hl=en&q=Brianna%20%20Titone%20Colorado%20House%20District%2027%2C%20CO&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1153,7 +1153,7 @@ Brianna, a geologist and Information Technology professional by trade, has lived
 
 Josie has dedicated her career to creating opportunities for people in poverty. In her current role coaching students at the University of Louisville, she is responsible for making sure thousands of young people have the best shot at graduating. She has one husband and two small children.
 
-[Facebook](http://www.facebook.com/raymondforrep) - [Twitter](http://www.twitter.com/raymondforrep)
+[Facebook](http://www.facebook.com/raymondforrep) - [Twitter](http://www.twitter.com/raymondforrep) - [Google](https://www.google.com/search?hl=en&q=Josie%20%20Raymond%20Kentucky%20State%20Representative%2C%20District%2031%2C%20KY&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1166,7 +1166,7 @@ Bob previously worked for the State of Illinois where he served as the lead atto
 
 Bob is a current Board Member of the Anti-Defamation League, on the Board of Trustees of Equip for Equality, and a member of Temple Beth El in Northbrook. Bob has been active in politics serving as Jewish Outreach Director for both Pat Quinn and Hillary Clinton in Illinois, as well as for Barack Obama in Florida in 2008.
 
-[Facebook](http://www.facebook.com/bobmorganforIL/) - [Twitter](http://www.twitter.com/BobMorganIL)
+[Facebook](http://www.facebook.com/bobmorganforIL/) - [Twitter](http://www.twitter.com/BobMorganIL) - [Google](https://www.google.com/search?hl=en&q=Bob%20Morgan%20Illinois%20State%20Representative%2C%2058th%20District%2C%20IL&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1177,7 +1177,7 @@ Bob is a current Board Member of the Anti-Defamation League, on the Board of Tru
 
 Born and raised in Birmingham, which is part of Michigan's 40th District, Mari Manoogian got her start in public service as an intern for former Dean of the House of Representatives John Dingell (D-MI), and interned for former U.S. Ambassador to the United Nations Samantha Power. She has also served in the Offices of English Language Programs and eDiplomacy at the State Department. Manoogian has a Master of Arts in Global Communication and International Organizations from the George Washington University's Elliott School of International Affairs.
 
-[Facebook](http://www.facebook.com/mariformichigan) - [Twitter](http://www.twitter.com/marimanoogian)
+[Facebook](http://www.facebook.com/mariformichigan) - [Twitter](http://www.twitter.com/marimanoogian) - [Google](https://www.google.com/search?hl=en&q=Mari%20Manoogian%20Michigan%20State%20House%2C%2040th%20District%2C%20MI&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1188,7 +1188,7 @@ Born and raised in Birmingham, which is part of Michigan's 40th District, Mari M
 
 Anna V. Eskamani is lifelong Orlando Native and daughter of immigrants who has worked relentlessly her entire life to protect all members of our community through effective advocacy, bold leadership, and strategic management. A community organizer with a proven track record in building consensus while fighting unapologetically for progressive values, Anna currently serves as the Senior Director of Public Affairs and Communications for Planned Parenthood of Southwest and Central Florida.
 
-[Facebook](http://www.facebook.com/AnnaForFlorida/) - [Twitter](http://www.twitter.com/AnnaForFlorida)
+[Facebook](http://www.facebook.com/AnnaForFlorida/) - [Twitter](http://www.twitter.com/AnnaForFlorida) - [Google](https://www.google.com/search?hl=en&q=Anna%20Eskamani%20Florida%20House%20District%2047%2C%20FL&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
 
@@ -1199,6 +1199,6 @@ Anna V. Eskamani is lifelong Orlando Native and daughter of immigrants who has w
 
 Democrat Daniel Didech is a candidate for the 59th House District in Illinois. As a municipal attorney, Daniel provides legal counsel to units of local government, including villages, townships, school districts, park districts and community colleges. Daniel is a lifelong resident of Buffalo Grove where he lives with his wife, Jen, who is a 6th grade math teacher, and their dog, Captain Hook.
 
-[Facebook](http://www.facebook.com/DidechForRep/) - [Twitter]()
+[Facebook](http://www.facebook.com/DidechForRep/) - [Twitter]() - [Google](https://www.google.com/search?hl=en&q=Daniel%20Didech%20Illinois%20House%20of%20Representatives%2C%2059th%20District%2C%20IL&start=0&sa=N&num=10&ie=UTF-8&oe=UTF-8&gws_rd=ssl)
 
 ---
