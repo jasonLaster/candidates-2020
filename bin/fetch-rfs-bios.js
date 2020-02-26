@@ -3,6 +3,7 @@ const candidates = require("../results/rfs-list");
 const fs = require('fs')
 
 let results = {};
+let count = 1;
 (async () => {
   const crawler = await HCCrawler.launch({
     evaluatePage: (a,b,c) => {
@@ -12,7 +13,7 @@ let results = {};
           .trim();
       }
 
-      function l(selector, index) {
+      function l(selector, index = 0) {
         return $(selector)[index] ? $(selector)[index].href : ""
       }
 
@@ -23,12 +24,14 @@ let results = {};
         bio: t(".candidate__bio"),
         image: $('.col-sm-6.content-area img')[0].src,
         facebook: l('.col-sm-6 .social-links__link a', 0),
-        twitter: l('.col-sm-6 .social-links__link a', 1)
+        twitter: l('.col-sm-6 .social-links__link a', 1),
+        support: l('.candidate__bio h2 a', 0),
+        actblue: '',
       };
     },
     onSuccess: ({ result }) => {
       results[result.url] = result;
-      console.log(`>> ${result.url}`)
+      console.log(`${count++}: ${result.url} -- ${result.support}`)
     },
     onError: (error) => {
     	console.log(error)
